@@ -1,14 +1,14 @@
 ![i loove fortnite](firefly-lock-in-lock-in.gif)
 
-RAAAGHHHHmmmm im luca :3c (he.)
+hi guys im luca wakabayashiz
 
 ![](https://komarev.com/ghpvc/?username=wakabayashiiz)
 
 
-iiiuhhh im in the pjsk area sometimes...... the regretevator one too um. umm. and the danganronpa one.. heh,, yeah Yeah other than that idk sometimes im everywhere ...
-all of my interests are listed in my STRAWPAGE!!!!! GO LOOK AT IT!!!! NOWQ!!!! theres a section in there labelled "my interests" so if we match up on any of them, TALK TO ME!! PLEASSS!EE!!!!!
+iiiuhhh im in the pjsk area sometimes...... the regretevator one too um. umm. and the danganronpa one.. heh,, yeah Yeah other than that idk sometimes im everywhere ... like.. hermit hill..(?)...
+all of my interests are listed in my STRAWPAGE!!!!! GO LOOK AT IT!!!! NOWQ!!!! and if we match up on any of them, TALK TO ME!! PLEASSS!EE!!!!!
 
-quick rundown though i like vocaloid and um milgram and ummmmm uhh danganronpa fangames and- *little man runs by* WOAH! DID YOU SEE THAT?!?$!?$
+quick rundown though i like bandori and um milgram and ummmmm uhh danganronpa fangames and- *gnome runs by* WOAH! DID YOU SEE THAT?!?$!?$
 
 i dont have a real dni list but if u like hazbin hotel or like anyone ANYONE who was in the dsmp be wary!! heh because i dnot. like those people. OH AND pjsk fans who r like .. annoying like the people on pjsktwt..
 
